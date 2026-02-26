@@ -1,4 +1,4 @@
-![katamichi](https://github.com/user-attachments/assets/b0c28587-8788-4fbf-9318-2a1ab908308d)
+![katamichi](https://github.com/user-attachments/assets/eede23a1-7881-4ff5-b2da-f11c220d704d)
 
 # Learn Japan Through Travel Planning
 
